@@ -4,6 +4,4 @@ my pronouns are he/they !!! 💥 💥
 
 feel free to interact lolzz
 
-(also if you like any of my same interests PLSSPSSLSLS tell me youre so cool thank you)
-
-if u want any more info just ask vrp idk
+if u want any more info just ask vrp idk ://
